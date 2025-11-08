@@ -24,4 +24,3 @@ Mobil uyumlu, eğlenceli bir çıkma teklifi websitesi.
 ---
 
 Yapıldığı yerden ❤️ ile
-
